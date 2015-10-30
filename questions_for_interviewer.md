@@ -2,7 +2,7 @@
 
 [5 Questions to Ask in An Interview: Heather Huhman, Glassdoor](http://www.glassdoor.com/blog/5-questions-job-interview/?utm_medium=email&utm_source=newsletter&utm_campaign=September2015_US&utm_content=INTERVIEW_TIPS)
 
-[Questions I'm asking in interviews: Julia Evans](http://jvns.ca/blog/2013/12/30/questions-im-asking-in-interviews/)
+[Questions I'm Asking in Interviews: Julia Evans](http://jvns.ca/blog/2013/12/30/questions-im-asking-in-interviews/)
 
 ### Question Template:
 
