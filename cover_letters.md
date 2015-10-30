@@ -1,4 +1,4 @@
-### Cover Letter Template
+### Cover Letter Template- - -
 
 [CURRENT DATE]  
 
@@ -18,6 +18,6 @@ I can be reached at [EMAIL ADDRESS] or [PHONE NUMBER], and my portfolio website 
 
 Sincerely,
 
-[SIGNATURE]
+[DIGITAL SIGNATURE]
 
 [FIRST NAME] [LAST NAME]
