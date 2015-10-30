@@ -1,12 +1,12 @@
 ### Cover Letter Template
 
-[CURRENT DATE]
+[CURRENT DATE]  
 
-[COMPANY NAME]/s/s
-[COMPANY STREET ADDRESS]/s/s 
-[CITY], [STATE] [ZIP CODE]/s/s
+[COMPANY NAME]  
+[COMPANY STREET ADDRESS]  
+[CITY], [STATE] [ZIP CODE]  
 
-To Whom It May Concern,
+To Whom It May Concern,  
 
 I recently visited the [COMPANY NAME] website [REASON FOR VISITING COMPANY WEBSITE], and [WHY YOU WERE IMPRESSED WITH THE COMPANY WEBSITE]. While navigating through the pages I noticed a position listing for a [POSITION TITLE]. I would welcome the opportunity to be considered for the position!
 
