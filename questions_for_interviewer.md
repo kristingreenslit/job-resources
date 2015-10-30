@@ -1,4 +1,8 @@
-### Questions for the Interviewer
+### Questions for the Interviewer:
+
+[Heather Huhman, Glassdoor: 5 Questions to Ask in An Interview](http://www.glassdoor.com/blog/5-questions-job-interview/?utm_medium=email&utm_source=newsletter&utm_campaign=September2015_US&utm_content=INTERVIEW_TIPS)
+
+### Question Template:
 
 - How are the company departments structured / engineers organized?
 - Who would I be reporting to?
