@@ -1,4 +1,5 @@
-### Cover Letter Template- - -
+### Cover Letter Template
+- - -
 
 [CURRENT DATE]  
 
