@@ -1,11 +1,11 @@
 ### Questions for the Interviewer:
 
-[Heather Huhman, Glassdoor: 5 Questions to Ask in An Interview](http://www.glassdoor.com/blog/5-questions-job-interview/?utm_medium=email&utm_source=newsletter&utm_campaign=September2015_US&utm_content=INTERVIEW_TIPS)
+[5 Questions to Ask in An Interview: Heather Huhman, Glassdoor](http://www.glassdoor.com/blog/5-questions-job-interview/?utm_medium=email&utm_source=newsletter&utm_campaign=September2015_US&utm_content=INTERVIEW_TIPS)
 
 ### Question Template:
 
 - How are the company departments structured / engineers organized?
-- Who would I be reporting to?
+- Who will I be reporting to?
 - What is the biggest challenge in your work / most rewarding aspect?
 - What is the company's management style?
 - What opportunities exist for advancement?
