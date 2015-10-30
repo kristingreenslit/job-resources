@@ -12,6 +12,8 @@
 
 [The Underground Guide for Getting a Job: Lou Adler, Inc.](http://www.inc.com/lou-adler/the-underground-guide-for-getting-a-job.html)
 
-[This Networking Secret Is So Crazy Obvious That Most People Look Right Past It: Lily Herman, The Muse](https://www.themuse.com/advice/this-networking-secret-is-so-crazy-obvious-that-most-people-look-right-past-it?utm_medium=email&utm_campaign=*%20New%20BOTW%20Template%208/2/15&utm_source=Sailthru&utm_term=Sunday%20-%20Best%20of%20The%20Web)
-
 [Simply the Best Personality Type Indicator for Hiring Anyone: Lou Adler, Inc.](http://www.inc.com/lou-adler/simply-the-best-personality-type-indicator-for-hiring-anyone.html)
+
+[Impostor Syndrome: Why You Feel Like A Fraud And How To Overcome It: Eric Barker](http://www.bakadesuyo.com/2015/09/impostor-syndrome/?utm_source=Sailthru&utm_medium=email&utm_campaign=%2A%20New%20BOTW%20Template%2010/4/15&utm_term=Sunday%20-%20Best%20of%20The%20Web)
+
+[This Networking Secret Is So Crazy Obvious That Most People Look Right Past It: Lily Herman, The Muse](https://www.themuse.com/advice/this-networking-secret-is-so-crazy-obvious-that-most-people-look-right-past-it?utm_medium=email&utm_campaign=*%20New%20BOTW%20Template%208/2/15&utm_source=Sailthru&utm_term=Sunday%20-%20Best%20of%20The%20Web)

@@ -9,4 +9,3 @@
 [Stitch Fix](https://www.stitchfix.com/)
 
 [35 (More!) of the Best Personal Websites We've Ever Seen: Aja Frost, The Muse](https://www.themuse.com/advice/35-more-of-the-best-personal-websites-weve-ever-seen?utm_source=Sailthru&utm_medium=email&utm_campaign=35%20%28More%21%29%20of%20the%20Best%20Personal%20Websites%20We%27ve%20Ever%20Seen&utm_term=Daily%20Email%20List)
-

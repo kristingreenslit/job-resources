@@ -6,5 +6,5 @@
 
 [20 Free Editable CV/Resume Templates for PS & AI: Chris Spooner, Blog Spoon Graphics](http://blog.spoongraphics.co.uk/articles/20-free-editable-cvresume-templates-for-ps-ai)
 
-
+[vizualize.me](http://vizualize.me/)
 
