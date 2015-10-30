@@ -1,1 +1,1 @@
-### A Collection of Resources for the Job Seeker
+#### A Collection of Resources for the Developer Job Seeker
