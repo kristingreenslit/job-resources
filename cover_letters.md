@@ -1,5 +1,11 @@
+### Cover Letter Resources:
+
+[Glassdoor: 6 Unconventional Ways To Start Your Cover Letter](http://www.glassdoor.com/blog/6-unconventional-ways-start-cover-letter/?utm_medium=email&utm_source=newsletter&utm_campaign=July2015_US&utm_content=COVERLETTER)
+
+[Glassdoor: 5 Phrases To Close Your Cover Letter & Land The Interview](http://www.glassdoor.com/blog/5-phrases-close-cover-letter-land-interview/?utm_medium=email&utm_source=newsletter&utm_campaign=July2015_US&utm_content=COVERLETTER)
+
+
 ### Cover Letter Template
-- - -
 
 [CURRENT DATE]  
 
